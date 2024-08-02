@@ -17,6 +17,7 @@ As a passionate technical recruiter, I thrive on connecting top-tier talent with
 **🌐 Let's Connect**
 
 Linkedin: https://www.linkedin.com/in/anupama-yapa-24275b127/
+
 Email: anupama.jinethree@gmail.com
 
 **📈 Let’s Build the Future Together**
